@@ -1,0 +1,7 @@
+- I’m Connie Leonard
+- An Expert Managements, Managing Investors Trading Account in The Stock Exchange Market of Froex.
+- Profiting / Earning 30% of an Invested Capital is RISK FREE on the Basis is Guranted, Reliable & Secured.
+- I’m looking to collaborate on managing intrested investors with my relied trading stratagy
+- Being doing this for 3 years and 4 months, charges 5-10% of montly financial gain.
+- Reach me Phone: +19897784562 on WhatsApp as well, Email: connieleonardfox@gmail.com
+- Twitter: @Connie_Leonar Instagram: @connie.leonard.940 Facebook: Connie Leonard
